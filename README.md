@@ -1,0 +1,1 @@
+# novaTranslator-10.17.1.12-GitHub-Ready
